@@ -1,4 +1,4 @@
-#   NJ Plasmoid Drones: What the White House Didn't Tell You 
+# NJ Sentient Plasmoid Drones: What the White House Didn't Tell You!
 
 Watch the video on YouTube: https://www.youtube.com/watch?v=OhFe41PpuoE
 
