@@ -1,4 +1,4 @@
-# NJ Sentient Plasmoid Drones: What the White House Didn't Tell You!
+# Sentient Plasmoid Life-forms are Drones approved by the FAA?! What isn't the White House Telling Us?
 
 Watch the video on YouTube: https://www.youtube.com/watch?v=OhFe41PpuoE
 
