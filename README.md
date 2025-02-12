@@ -1,4 +1,4 @@
-# Sentient Plasmoid Life-forms are Drones approved by the FAA?! What isn't the White House Telling Us?
+# Sentient Ball-lightning Plasmoids are Drones approved by the FAA according to the White House?!
 
 Watch the video on YouTube: https://www.youtube.com/watch?v=OhFe41PpuoE
 
